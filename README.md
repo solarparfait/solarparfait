@@ -2,7 +2,7 @@
 
 <p align="center">LIFE IS ONLY BEAUTIFUL BECAUSE IT IS FLEETING... SO TRANSIENT!
   
-<p align="center"><img src="![image](https://github.com/user-attachments/assets/58457b47-b269-4573-a428-011f6b93ca78)
+<p align="center"><img src="![image]([https://github.com/user-attachments/assets/58457b47-b269-4573-a428-011f6b93ca78](https://i.pinimg.com/736x/47/34/ed/4734edf217f53f77532a2565afed8bba.jpg))
 "/>
 
 <p align="center">— roki zyn sasuke hidan ita val ! ‹𝟹

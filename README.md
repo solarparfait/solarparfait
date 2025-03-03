@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=✦&style=plastic&base=0)
 
-<p align="center">LIFE IS ONLY BEAUTIFUL BECAUSE IT IS FLEETING... SO TRANSIENT!
+<p align="center">WHILE I WALK TOWARDS MY REAL DREAM, ILL ENJOY FIGHTING YOU
   
 <p align="center"><img src="![image](https://i.pinimg.com/736x/47/34/ed/4734edf217f53f77532a2565afed8bba.jpg)
 "/>

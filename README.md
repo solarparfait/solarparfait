@@ -2,8 +2,7 @@
 
 <p align="center">WHILE I WALK TOWARDS MY REAL DREAM, ILL ENJOY FIGHTING YOU
   
-<p align="center"><img src="![image](https://i.pinimg.com/736x/47/34/ed/4734edf217f53f77532a2565afed8bba.jpg)
-"/>
+<p align="center">![alt text](http://(https://i.pinimg.com/736x/47/34/ed/4734edf217f53f77532a2565afed8bba.jpg)
 
 <p align="center">— roki zyn sasuke hidan ita val ! ‹𝟹
   

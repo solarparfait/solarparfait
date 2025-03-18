@@ -1,4 +1,4 @@
-<p align="center">[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=✦&style=plastic&base=0)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=✦&style=plastic&base=0)
 
 <p align="center">WHILE I WALK TOWARDS MY REAL DREAM, ILL ENJOY FIGHTING YOU
   

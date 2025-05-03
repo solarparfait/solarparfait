@@ -2,4 +2,4 @@
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=✦&style=plastic&base=0)
 
-strawpage 
+[strawpage](https://detectivesprince.straw.page/)

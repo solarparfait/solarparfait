@@ -6,4 +6,4 @@
 
 ![adasdddddddd](https://github.com/user-attachments/assets/109e406c-6275-4eee-bc42-e4d436cab078)
 
-୨ৎ [strawpage](https://detectivesprince.straw.page/) ⟡ [rentry](https://rentry.co/solarparfait) ⟡ [atabook](https://deidara.atabook.org/) ୨ৎ
+୨ৎ [strawpage](https://detectivesprince.straw.page/) ⟡ [rentry](https://rentry.co/solarparfait) ⟡ [atabook](https://solarparfait.atabook.org/) ୨ৎ

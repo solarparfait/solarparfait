@@ -1,6 +1,6 @@
 <div align="center">
   
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=✦&style=plastic&base=0)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=⟡&style=plastic&base=0)
 
 " CAUSE YOULL BE FINE & SO WILL I, SO JUST LET THE THOUGHT OF ME DIE "
 

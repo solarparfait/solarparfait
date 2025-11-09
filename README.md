@@ -2,7 +2,7 @@
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=⟡&style=plastic&base=0)
 
-" MOST OF FREEDOM, AND OF PLEASURE. NOTHING EVER LASTS FOREVER "
+" REV MY ENGINE TILL YOU MAKE IT PURR "
 
 ![hehehe](https://github.com/user-attachments/assets/80b4390e-139c-48ff-84aa-ef3a102aad5f)
 

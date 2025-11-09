@@ -2,7 +2,7 @@
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=solarparfait&color=grey&label=⟡&style=plastic&base=0)
 
-" REV MY ENGINE TILL YOU MAKE IT PURR "
+" REV MY ENGINE TILL YOU MAKE IT PURRRR! "
 
 ![hehehe](https://github.com/user-attachments/assets/80b4390e-139c-48ff-84aa-ef3a102aad5f)
 

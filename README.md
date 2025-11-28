@@ -8,4 +8,4 @@
 
 
 
-୨ৎ [strawpage](https://riskyrunawy.straw.page) ⟡ [rentry](https://rentry.co/solarparfait) ⟡ [atabook](https://solarparfait.atabook.org/) ୨ৎ
+୨ৎ [strawpage](https://vegabones.straw.page) ⟡ [rentry](https://rentry.co/solarparfait) ⟡ [atabook](https://solarparfait.atabook.org/) ୨ৎ

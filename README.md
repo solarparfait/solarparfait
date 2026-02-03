@@ -4,7 +4,8 @@
 
 " REV MY ENGINE TILL YOU MAKE IT PURRRR! "
 
-![hehehe](https://github.com/user-attachments/assets/80b4390e-139c-48ff-84aa-ef3a102aad5f)
+
+![wimp](https://github.com/user-attachments/assets/fff3eba0-f282-4263-8992-85be7e0da584)
 
 
 

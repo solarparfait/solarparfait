@@ -9,6 +9,4 @@
 
 
 
-୨ৎ [strawpage](https://solarparfait.straw.page) ⟡ [rentry](https://rentry.co/solarparfait) ⟡ [pronouns](https://pronouns.cc/@deadlydreamboat) ୨ৎ
-
-[atabook](https://sharpnessv.atabook.org)
+୨ৎ [strawpage](https://solarparfait.straw.page) ⟡ [atabook](https://sharpnessv.atabook.org) ⟡ [pronouns](https://pronouns.cc/@deadlydreamboat) ୨ৎ
